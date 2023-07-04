@@ -1,2 +1,1 @@
 Artemiy Arzumanov
-19
