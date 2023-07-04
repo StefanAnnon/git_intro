@@ -1,1 +1,2 @@
 Artemiy Arzumanov
+arzumana@oregonstate.edu
